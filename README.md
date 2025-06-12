@@ -1,5 +1,6 @@
 # suntik-tiktok-suntik-instagram
 💉READY SUNTIK ALL SOSMED🎵
+<h6>tag: suntik,suntik tiktok, suntik sosmed, script termux, suntik Instagram, youtube, auto followers, like, coment, script, tiktok, telegram, instagram, YouTube </h6>
 ```bash
 💉READY SUNTIK ALL SOSMED🎵
 
