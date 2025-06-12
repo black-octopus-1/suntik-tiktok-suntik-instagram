@@ -67,4 +67,4 @@
 Untuk Lainnya seperti SnackVideo,Telegram,Youtube, Twich, Spotify,Thread,Shoppe Dan Facebook bisa chat aja
 ```
 
-KLIK INI UNTUK <a href="wa.me/6285169816556">NOMOR TELEPON</a>
+KLIK INI UNTUK <a href="https://wa.me/6285169816556">NOMOR TELEPON</a>
